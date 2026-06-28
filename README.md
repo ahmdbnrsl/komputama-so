@@ -1,0 +1,1 @@
+# komputama-so
